@@ -1,8 +1,6 @@
 <h6 align="center">hihihi !! ˙𐃷˙</h6>
 
 
-<h6 align="right">hihihi !! ˙𐃷˙</h6>
-
  
 
 
